@@ -1,2 +1,2 @@
 # input-data-pegawai
-<img src="https://ibb.co.com/gMR4mHj">Hasil
+<img src="https://freeimage.host/i/1000416011.dTLMOAX">Hasil
